@@ -1,1 +1,1 @@
-# Semenarni_Prace_US_Rejman
+# Semestralni_Prace_US_Rejman
