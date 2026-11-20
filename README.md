@@ -1,1 +1,1 @@
-# Seminarni_Prace_US_Rejman
+# Semenarni_Prace_US_Rejman
